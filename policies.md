@@ -97,3 +97,5 @@ Changes to this privacy policy
 The Owner reserves the right to make changes to this privacy policy at any time by notifying its Users on this page and possibly within this Application and/or - as far as technically and legally feasible - sending a notice to Users via any contact information available to the Owner. It is strongly recommended to check this page often, referring to the date of the last modification listed at the bottom.
 
 Should the changes affect processing activities performed on the basis of the User’s consent, the Owner shall collect new consent from the User, where required.
+
+<a href="https://www.freepik.com/free-vector/terrified-girl-anime-character-poster_29108294.htm#query=anime&position=4&from_view=keyword#position=4&query=anime">Image by gstudioimagen1</a> on Freepik
